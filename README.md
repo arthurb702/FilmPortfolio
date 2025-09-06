@@ -13,6 +13,6 @@ Visual Effects project (text in scene)__ https://youtu.be/55h6FQWwrK4?si=Of628to
 
 Lighting project__ https://www.icloud.com/iclouddrive/07fZCd7eCazkZ-i5wJN815N7g#Lighting_project
 
-Mortagage commercial__ https://www.icloud.com/iclouddrive/040x_pakoNVIYFErTVB9hjU_w#Artopoly
+Mortgage commercial__ https://www.icloud.com/iclouddrive/040x_pakoNVIYFErTVB9hjU_w#Artopoly
 
 9 shots project__ https://www.icloud.com/iclouddrive/025viJUqq9sAb80S8nvLz5NQQ#9_shots_project
