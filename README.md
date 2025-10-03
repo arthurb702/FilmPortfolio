@@ -4,15 +4,10 @@ Arthur Borja's Film Portfolio
 
 9 shots project — [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)
     
-
-Interview assignment— 
-  
-    https://drive.google.com/file/d/1OGERBljO0GOgO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link
+Interview assignment — [View here](https://drive.google.com/file/d/10GERBlj0OG0gO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link)
     
 
-Mortgage commercial— 
-  
-    https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link
+Mortgage commercial— [View here](https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link)
     
 
 Birthday video— 
