@@ -6,23 +6,23 @@
 
 ---
 
-  -**Interview assignment**— [View here](https://drive.google.com/file/d/10GERBlj0OG0gO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link)<br>
-    -📰 Short-form documentary style project.
+- **Interview assignment**— [View here](https://drive.google.com/file/d/10GERBlj0OG0gO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link)<br>
+  - 📰 Short-form documentary style project.
 
 ---
 
-  -**Mortgage commercial**— [View here](https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link)<br>
-    -📺 A creative commercial project for a mortgage company.
+- **Mortgage commercial**— [View here](https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link)<br>
+  - 📺 A creative commercial project for a mortgage company.
 
 ---
 
-  -**Birthday video**— [View here](https://youtu.be/JC4AgGthXwY?si=IWVgM2ycjlSySgFg)<br>
-    -🎉 Personal creative editing for a birthday celebration.
+- **Birthday video**— [View here](https://youtu.be/JC4AgGthXwY?si=IWVgM2ycjlSySgFg)<br>
+  - 🎉 Personal creative editing for a birthday celebration.
 
 ---
 
-  -**Visual Effects project (clone self)**— [View here](https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-)<br>
-    -✨ VFX test showcasing duplication effect.
+-**Visual Effects project (clone self)**— [View here](https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-)<br>
+  -✨ VFX test showcasing duplication effect.
 
 ---
 
