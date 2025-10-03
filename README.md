@@ -6,21 +6,10 @@ Arthur Borja's Film Portfolio
     
 Interview assignment — [View here](https://drive.google.com/file/d/10GERBlj0OG0gO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link)
     
-
 Mortgage commercial— [View here](https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link)
-    
 
-Birthday video— 
-  
-    https://youtu.be/JC4AgGthXwY?si=IWVgM2ycjlSySgFg
+Birthday video— [View here](https://youtu.be/JC4AgGthXwY?si=IWVgM2ycjlSySgFg)
     
-
-Visual Effects project (clone self)— 
-  
-    https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-
+Visual Effects project (clone self)— [View here](https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-)
     
-
-Visual Effects project (text in scene)— 
-  
-    https://youtu.be/55h6FQWwrK4?si=Of628toSZzYY8b3w
-    
+Visual Effects project (text in scene)— [View here](https://youtu.be/55h6FQWwrK4?si=Of628toSZzYY8b3w)
