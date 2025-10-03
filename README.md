@@ -1,8 +1,8 @@
 # Film Portfolio of Arthur Borja
 
 
--**9 shots project**— [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)<br>
-  -🎥 A cinematic exercise exploring 9 unique camera angles.
+- **9 shots project**— [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)<br>
+  - 🎥 A cinematic exercise exploring 9 unique camera angles.
 
 ---
 
