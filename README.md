@@ -28,3 +28,6 @@
 
 **Visual Effects project (text in scene)— [View here](https://youtu.be/55h6FQWwrK4?si=Of628toSZzYY8b3w)<br>
   -📝 Motion graphics test integrating text into live action.
+
+- **9 shots project** — [View here](...)
+  - 🎥 A cinematic exercise exploring 9 unique camera angles.
