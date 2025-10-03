@@ -23,6 +23,8 @@
 
 **Visual Effects project (clone self)— [View here](https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-)
     ✨ VFX test showcasing duplication effect.
-    
+
+---
+
 **Visual Effects project (text in scene)— [View here](https://youtu.be/55h6FQWwrK4?si=Of628toSZzYY8b3w)
     📝 Motion graphics test integrating text into live action.
