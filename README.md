@@ -2,9 +2,7 @@
 Arthur Borja's Film Portfolio
 
 
-9 shots project— 
-  
-    [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)
+9 shots project — [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)
     
 
 Interview assignment— 
