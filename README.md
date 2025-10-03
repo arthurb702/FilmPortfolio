@@ -1,7 +1,7 @@
 # FilmPortfolio
 Arthur Borja's Film Portfolio
 
-9 shots project__ https://www.icloud.com/iclouddrive/025viJUqq9sAb80S8nvLz5NQQ#9_shots_project
+9 shots project__ https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing
 
 Interview assignment__ https://drive.google.com/file/d/1OGERBljO0GOgO9Q1GHzU4exfOSvcEc1A/view?usp=drive_link
 
