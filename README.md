@@ -12,5 +12,3 @@ Mortgage commercial__ https://www.icloud.com/iclouddrive/040x_pakoNVIYFErTVB9hjU
 Visual Effects project (clone self)__ https://youtu.be/VunDgrEQASg?si=M2X4TppjFRDvh7k-
 
 Visual Effects project (text in scene)__ https://youtu.be/55h6FQWwrK4?si=Of628toSZzYY8b3w
-
-Lighting project__ https://www.icloud.com/iclouddrive/07fZCd7eCazkZ-i5wJN815N7g#Lighting_project
