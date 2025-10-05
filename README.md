@@ -1,6 +1,11 @@
 # Film Portfolio of Arthur Borja
 
 
+- **Birthday video**— [View here](https://drive.google.com/file/d/1q33TpBypuSztS8OQs_IRSHUC8b896jON/view?usp=drive_link)<br>
+  - 🎉 Personal creative editing for a birthday celebration.
+
+---
+
 - **9 shots project**— [View here](https://drive.google.com/file/d/1TWXeyGKuX9XTpB-iu2j1h4IOMhHLHoXU/view?usp=sharing)<br>
   - 🎥 A cinematic exercise exploring 9 unique camera angles.
 
@@ -13,11 +18,6 @@
 
 - **Mortgage commercial**— [View here](https://drive.google.com/file/d/14s2M8BVxVy5hdv79ht2pcPvuv3EAhnYO/view?usp=drive_link)<br>
   - 📺 A creative commercial project for a mortgage company.
-
----
-
-- **Birthday video**— [View here](https://drive.google.com/file/d/1q33TpBypuSztS8OQs_IRSHUC8b896jON/view?usp=drive_link)<br>
-  - 🎉 Personal creative editing for a birthday celebration.
 
 ---
 
